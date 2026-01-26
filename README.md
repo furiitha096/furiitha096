@@ -24,6 +24,7 @@
     <li>I really don't like pro-c for the big 3 paraphiles + incest</li>
     <li>I'm generally against trans id for like stuff like rcta/etca, transabled, etc. If ur something like transglitterblood or sum ig that seems fine</li>
   </ul>
+  <li>anti-self-diagnosis: sorry not everyone can afford healthcare or wait on long ass waiting list just for a doctor 2 confirm they have something they've known they've had for years</li>
   <li>other reasons</li>
   
 </ul>
