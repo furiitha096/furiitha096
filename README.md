@@ -19,7 +19,7 @@
   </ul>
   <li>anti-endo: idk much about syscourse but from what ik they seem fine, i have friends who r endos & also anti-endos lowkey scare me for some reason</li>
   <li>anti-lesboy, mspec mono, etc: why r we as the queer community perptarting MORE queerphobia?????</li>
-  <li>radqueer</li>
+  <li>pro-radqueer</li>
   <ul>
     <li>I really don't like pro-c for the big 3 paraphiles + incest</li>
     <li>I'm generally against trans id for like stuff like rcta/etca, transabled, etc. If ur something like transglitterblood or sum ig that seems fine</li>
